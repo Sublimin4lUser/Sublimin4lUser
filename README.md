@@ -3,7 +3,7 @@
 
 ### 👾 Bio:
 
-- 🏢 France
+- 🏢 Europe
 - 🧧 Currently working on *******
 - 📫 Reach me: sublimin4luser@proton.me
 <br>
